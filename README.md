@@ -1,2 +1,2 @@
 # CommunityClassroom-Git
-Navya Mehta says that this community is amazing!
+-Navya Mehta says that this community is amazing!
